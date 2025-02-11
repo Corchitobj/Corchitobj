@@ -1,4 +1,4 @@
-👋 ¡Hola! Soy [Tu Nombre]
+👋 ¡Hola! Soy Ignacio Maciel
 
 🚀 Sobre mí
 
